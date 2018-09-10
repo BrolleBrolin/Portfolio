@@ -7,3 +7,5 @@ Namn: Fredrik Brolin
 Ursprung: Stockholm, Bromma
 Intressen: Sport (främst hockey)
 Musiksmak: Old school (90-tals) rap och Rock
+
+För information på tidigare arbeten gå till Wikin.
